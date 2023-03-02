@@ -1,1 +1,0 @@
-# Projekt-engeto-.-3---Web-scraper
